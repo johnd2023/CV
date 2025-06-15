@@ -1,2 +1,2 @@
 # CV
-Full-Stack Web Developer Bootcamp 2023 CV 
+Full-Stack Web Developer 2024/2025 CV 
